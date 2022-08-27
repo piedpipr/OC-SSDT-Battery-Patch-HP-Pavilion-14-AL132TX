@@ -1,0 +1,1 @@
+# OC-SSDT-Battery-Patch-HP-Pavilion-14-AL132TX-
